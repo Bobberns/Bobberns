@@ -1,4 +1,4 @@
-![Hello, I’m Fabiola BW](https://github.com/BobbyFabiola/BobbyFabiola/assets/144536942/2eba3217-5044-4169-8518-d6b0b019b71c)
+![Hello, I’m Fabiola cc](https://github.com/BobbyFabiola/BobbyFabiola/assets/144536942/713140ee-09a6-493a-975c-7c75ce582031)
 
 A BS Computer Science sophomore college kid in Cebu. 
 Currently learning to love the course I never imagined myself to be in.
