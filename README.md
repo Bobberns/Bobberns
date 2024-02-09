@@ -3,4 +3,4 @@
 A BS Computer Science sophomore college kid in Cebu. 
 Currently learning to love the course I never imagined myself to be in.
 
-I'm also one of the kids who hated Math and was never good at it but here I am actually genuinely falling in love with programming. So as cheesy as it is, if some one like me can do it then so can you. 🤍🥰
+I'm also one of the kids who hated Math and was never good at it but here I am actually genuinely falling in love with the art of programming. So as cheesy as it is, if someone like me can do it then so can you. 🤍🥰
