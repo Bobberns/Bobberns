@@ -1,5 +1,4 @@
-![Github Header](https://github.com/user-attachments/assets/771660a5-4c47-433a-bab6-ebf596c62f74)
-
+![Github Header](https://github.com/user-attachments/assets/19282637-cdbd-4edd-a767-e85cc201fd21)
 
 A BS Computer Science college kid in Cebu studying at the University of San Carlos. 
 Currently learning my abc's.
