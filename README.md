@@ -1,4 +1,4 @@
-![Github Header_pt2](https://github.com/user-attachments/assets/dd3274d5-084f-45b9-9f93-3d1d82cc9f90)
+![Github Header_pt3](https://github.com/user-attachments/assets/2933c64f-ab93-4477-a9c1-efb27e603aa3)
 
 ### ***Hi there!***
   
