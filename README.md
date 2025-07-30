@@ -1,4 +1,4 @@
-![Github Header_pt3](https://github.com/user-attachments/assets/2933c64f-ab93-4477-a9c1-efb27e603aa3)
+<img width="1500" height="396" alt="Github Header" src="https://github.com/user-attachments/assets/60367c3a-67db-4f7e-9288-ead8ff4b3e75" />
 
 ### ***Hi there!***
   
